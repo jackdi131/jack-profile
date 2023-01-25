@@ -1,1 +1,1 @@
-# jack-profile.github.io
+# https://jackdi131.github.io/jack-profile/
